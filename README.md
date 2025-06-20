@@ -4,4 +4,4 @@
 - 🚀 Passionate about startups and real-world impact
 - 🛠️ Currently learning: Computer Vision, Arduino, Machine Learning
 
-📫 How to reach me: [LinkedIn](https://www.linkedin.com/in/anujen-p-r-) | [Email](mailto:anujenpr7@gmail.com)
+📫 How to reach me: [LinkedIn](https://www.linkedin.com/in/anujen-p-r-142446300/) | [Email](mailto:anujenpr7@gmail.com)
